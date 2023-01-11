@@ -6,8 +6,6 @@ Hello I am Emu
 
 hello there I am Sabrina
 
-Hello From NN FIHA
-
 Hello, I am Shreya
 
-Hello, I am Minhaj
+Hello, I am Minhaj form ju
